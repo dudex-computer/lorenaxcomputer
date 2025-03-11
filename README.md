@@ -1,1 +1,1 @@
-# lorenaxcomputer
+# Maria e Lorena
